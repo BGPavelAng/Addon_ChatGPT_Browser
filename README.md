@@ -8,5 +8,12 @@ Modifica los espacios comentados y crea un estilo en css si quieres mejorar el a
 ![Captura desde 2023-04-05 17-38-50](https://user-images.githubusercontent.com/50802374/230237858-5be247b3-f2f7-4ae4-a392-2335b5c269e4.png)
 
 
+¡¡ACTUALIZACIÓN!!
+
+El proyecto sigue avanzando, si quieres este comprame un cafe en mi patron y te lo mandaré
+
+https://www.patreon.com/BGPavelAng
+
+
 ![Captura desde 2023-04-05 17-32-42](https://user-images.githubusercontent.com/50802374/230237872-84b51a50-15a6-496d-9f17-a420a842f741.png)
 
