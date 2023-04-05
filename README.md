@@ -15,5 +15,6 @@ El proyecto sigue avanzando, si quieres este comprame un cafe en mi patron y te 
 https://www.patreon.com/BGPavelAng
 
 
-![Captura desde 2023-04-05 17-32-42](https://user-images.githubusercontent.com/50802374/230237872-84b51a50-15a6-496d-9f17-a420a842f741.png)
+![Captura desde 2023-04-05 17-49-02](https://user-images.githubusercontent.com/50802374/230238180-b5d56c10-7479-4f16-b940-0d8e8b74ba6b.png)
+
 
